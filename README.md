@@ -30,7 +30,7 @@ Acredito que a venda moderna é uma orquestra. O sucesso em vendas complexas dep
 
 Para ver exemplos práticos de como aplico essas competências, incluindo estudos de caso com resultados quantificados e planos de negócio, acesse meu portfólio de projetos.
 
-**[➡️ Acesse meu Portfólio Comercial Estratégico aqui](https://github.com/Bira-Pereira-executivo/Bira-Pereira-executivo)**
+**[➡️ Acesse meu Portfólio Comercial Estratégico aqui](https://github.com/Bira-Pereira-executivo/Repositorio-Comercial)**
 
 ---
 
